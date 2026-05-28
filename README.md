@@ -14,3 +14,12 @@ Conquistar minha independência financeira.
 Continuar estudando e adquirindo experiência.
 Me tornar uma desenvolvedora de sucesso.
 Ser reconhecida pelo meu esforço, criatividade e dedicação.
+
+##MINHAS QUALIDADES💌
+
+Sou responsável e comprometida com meus estudos.
+Tenho criatividade para desenvolver ideias e projetos.
+Gosto de trabalhar em equipe e ajudar as pessoas.
+Sou determinada e persistente nos meus objetivos.
+
+
