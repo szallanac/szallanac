@@ -1,4 +1,4 @@
-** ALLANA COUTINHO🎀
+## ALLANA COUTINHO🎀
 
 ## SOBRE MIM💐
 
@@ -21,7 +21,7 @@ Tenho criatividade para desenvolver ideias e projetos.
 Gosto de trabalhar em equipe e ajudar as pessoas.
 Sou determinada e persistente nos meus objetivos.
 
-##FRASE QUE ME INSPIRA🌟
+## FRASE QUE ME INSPIRA🌟
 
 Lucas 1:37 — “Porque para Deus nada é impossível.”
 
