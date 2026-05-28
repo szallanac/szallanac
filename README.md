@@ -25,7 +25,7 @@ Sou determinada e persistente nos meus objetivos.
 
 Lucas 1:37 — “Porque para Deus nada é impossível.”
 
-![imagem](LK0182_Adesivo_Medalha_Sao_Bento--1-.png)
+
 
 
 
