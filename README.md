@@ -2,17 +2,16 @@
 
 ##SOBRE MIM💐
 
-🎧urso de Desenvolvimento de Sistemas no SENAI.
-
+🎧Faço curso de Desenvolvimento de Sistemas no SENAI.
 Sou uma pessoa dedicada, curiosa e esforçada.
-Gosto de aprender sobre tecnologia e programação.
+Gosto de aprender sobre tecnologia .
 Tenho interesse em criar projetos e desenvolver minhas habilidades.
 
 ##MEU OBJETIVO DE VIDA🐚
 
 Crescer profissionalmente 
 Continuar estudando e adquirindo experiência.
-Me tornar uma desenvolvedora de sucesso.
+Ter sucesso na minha futura profição.
 Ser reconhecida pelo meu esforço, criatividade e dedicação.
 
 ##MINHAS QUALIDADES💌
