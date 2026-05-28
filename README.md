@@ -3,23 +3,33 @@
 ##SOBRE MIM💐
 
 🎧urso de Desenvolvimento de Sistemas no SENAI.
+
 Sou uma pessoa dedicada, curiosa e esforçada.
+
 Gosto de aprender sobre tecnologia e programação.
+
 Tenho interesse em criar projetos e desenvolver minhas habilidades.
 
 ##MEU OBJETIVO DE VIDA🐚
 
 Crescer profissionalmente na área da tecnologia.
+
 Conquistar minha independência financeira.
+
 Continuar estudando e adquirindo experiência.
+
 Me tornar uma desenvolvedora de sucesso.
+
 Ser reconhecida pelo meu esforço, criatividade e dedicação.
 
 ##MINHAS QUALIDADES💌
 
 Sou responsável e comprometida com meus estudos.
+
 Tenho criatividade para desenvolver ideias e projetos.
+
 Gosto de trabalhar em equipe e ajudar as pessoas.
+
 Sou determinada e persistente nos meus objetivos.
 
 
