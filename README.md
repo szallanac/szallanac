@@ -1,16 +1,14 @@
-## Hi there 👋
+#Allana coutinho🎀
 
-<!--
-**szallanac/szallanac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+##Sobre Mim💐
+🎧urso de Desenvolvimento de Sistemas no SENAI.
+Sou uma pessoa dedicada, curiosa e esforçada.
+Gosto de aprender sobre tecnologia e programação.
+Tenho interesse em criar projetos e desenvolver minhas habilidades.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+##Meu Objetivo de Vida🐚
+Crescer profissionalmente na área da tecnologia.
+Conquistar minha independência financeira.
+Continuar estudando e adquirindo experiência.
+Me tornar uma desenvolvedora de sucesso.
+Ser reconhecida pelo meu esforço, criatividade e dedicação.
